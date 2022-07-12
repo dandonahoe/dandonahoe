@@ -1,1 +1,1 @@
-![cool-neon-smoke-colorful-black-background-purple-blue-yellow-white-smoke-artwork-painting-wallpaper-preview](https://user-images.githubusercontent.com/1390068/178532999-46ac5c1f-0620-4de8-89c6-10f923c38551.jpeg)
+![1651935916383](https://user-images.githubusercontent.com/1390068/178534302-13582785-d966-4c9a-8743-8a0978033037.jpeg)
